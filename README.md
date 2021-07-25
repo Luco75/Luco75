@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Lucas Santiago. I’m from Argentina.
+- 👋 Hi, I’m Lucas. I’m from Argentina.
 - 💏 I live with my girlfriend Guadalupe. I love her ❤!.
 - 🎮 My hobbies are video games and football. I’m Baca Juniors Fan 💙💛💙
 - 👀 I’m interested in video games and websites development.
